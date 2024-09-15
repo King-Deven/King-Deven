@@ -1,0 +1,7 @@
+- 👋 Hi, I’m King-Deven
+- 👀 I’m interested in learning Python
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on learning Python
+- 📫 How to reach me :4699191866
+- 😄 Pronouns: Him/He
+- ⚡ Fun fact: I love the color red
